@@ -1,4 +1,5 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) MY NAME IS THANAPAT AIAMSAART (https://img2.pic.in.th/pic/cc7a8b998d6d754da67b4d4fdd39a333.gif)
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) MY NAME IS THANAPAT AIAMSAART 
+![👋 Hi there, my name is Thammarat Thamma](https://miro.medium.com/v2/resize:fit:1358/0*FGD6BUzzZs1VJLuY.gif)
 ===========================================================================================================================================
 
 STUDENT IN UNIVERSITY OF PHAYAO
