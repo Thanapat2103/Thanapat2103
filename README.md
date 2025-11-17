@@ -6,7 +6,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 STUDENT IN UNIVERSITY OF PHAYAO
 -------------------------------
 
-I'm learning to be developer.
+I'm learning to be developer. 🧑‍💻
 
 * 🌍  I'm based in Phayao, Thailand
 
