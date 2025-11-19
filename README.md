@@ -8,7 +8,7 @@ STUDENT IN UNIVERSITY OF PHAYAO
 
 I'm learning to be developer. 🧑‍💻
 
-* 🌍  I'm based in Phayao, Thailand
+* 🌍  I'm based in Phayao, Thailand 🧑‍💻
 
 ### Skills
 
