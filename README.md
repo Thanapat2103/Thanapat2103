@@ -3,7 +3,7 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) MY NAME IS THANAPAT AIAMSAART
 ===========================================================================================================================================
 
-STUDENT IN UNIVERSITY OF PHAYAO
+STUDENT IN UNIVERSITY OF PHAYAO 🌍
 -------------------------------
 
 I'm learning to be developer. 🧑‍💻
